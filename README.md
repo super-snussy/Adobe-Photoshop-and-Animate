@@ -1,5 +1,5 @@
 # Adobe-Photoshop-and-Animate
-Sure I added earlier the files but...
+Sure I added files earlier but...
 # Sorry the github page was Block the files by user "targing". Reason:"Torrent files"
 More details:
 What is torrent files: (Click on a Link to see a Wikipedia page): https://en.wikipedia.org/wiki/Torrent_file
