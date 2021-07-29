@@ -1,1 +1,1 @@
-Sorry the github page was deleted by user "targing". Reason:"Not legal files" ErrorCode: 144
+Sorry the github page was deleted by user "targing". Reason:"Torrent files"
